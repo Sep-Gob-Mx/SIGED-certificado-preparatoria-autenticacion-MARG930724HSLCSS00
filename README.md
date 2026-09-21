@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MARG930724HSLCSS00
+MARG930724HSLCSS00
